@@ -15,6 +15,9 @@
 [Total Wireless - Samsung Galaxy A15 5G 64GB Prepaid - Black (Verizon)](https://www.bestbuy.com/site/total-wireless-samsung-galaxy-a15-5g-64gb-prepaid-black-verizon/6615804.p?skuId=6615804)
 - Model:TOSAS156VC643PWPSKU:6615804
 
-## $49.99 
+[Tracfone - Motorola moto g play 2024 64GB Prepaid - Blue](https://www.bestbuy.com/site/tracfone-motorola-moto-g-play-2024-64gb-prepaid-blue/6589852.p?skuId=6589852)
+- Model:TFMTXT2413VC3PWPSKU:6589852
+
+## $49.99
 [Boost Mobile - Summit 5G 64GB Prepaid - Vista Blue](https://www.bestbuy.com/site/boost-mobile-summit-5g-64gb-prepaid-vista-blue/6593786.p?skuId=6593786)
 - Model:CS339DSMTBL64RBSKU:6593786
