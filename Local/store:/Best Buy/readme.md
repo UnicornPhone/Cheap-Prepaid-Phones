@@ -11,6 +11,10 @@
 [Total Wireless - TCL 50 XE 5G Prepaid - Blue (Verizon)](https://www.bestbuy.com/site/total-wireless-tcl-50-xe-5g-prepaid-blue-verizon/6615803.p?skuId=6615803)
 - Model:TOALT614DC3PWPSKU:6615803
 
+## $39.99
+[Total Wireless - Samsung Galaxy A15 5G 64GB Prepaid - Black (Verizon)](https://www.bestbuy.com/site/total-wireless-samsung-galaxy-a15-5g-64gb-prepaid-black-verizon/6615804.p?skuId=6615804)
+- Model:TOSAS156VC643PWPSKU:6615804
+
 ## $49.99 
 [Boost Mobile - Summit 5G 64GB Prepaid - Vista Blue](https://www.bestbuy.com/site/boost-mobile-summit-5g-64gb-prepaid-vista-blue/6593786.p?skuId=6593786)
 - Model:CS339DSMTBL64RBSKU:6593786
